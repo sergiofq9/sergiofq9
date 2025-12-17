@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 # ¡Hola! Soy Sergio Fernández Quintela 👋
 
